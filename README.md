@@ -1,4 +1,4 @@
-#Bad :no_entry_sign: Religion 
+########Bad :no_entry_sign: Religion 
 
 Lyrics to songs from **Bad Religion**'s third album, _Suffer_:
 
